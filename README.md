@@ -77,7 +77,7 @@
 
 ## 📫 Connect With Me
 - LinkedIn: https://www.linkedin.com/in/nilesh-nagargoje-1bba2b193  
-- Email: nileshnagargtoje715@gmail.com 
+- Email: nileshnagargoje715@gmail.com 
 
 ---
 
